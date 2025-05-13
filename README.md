@@ -25,4 +25,4 @@ We’re not just another video production house. Based in South Delhi, Smoke Stu
 <li>Email: hello@smokestudioz.com</li>
 <li>Address: B92/A First Floor, Block A, Chhattarpur, Delhi 110074</li>
 <li>Website: www.smokestudioz.com</li>
-<li>Instagram: @smokestudioz</li>
+<h5>Whether you're filming in the heritage zones of Mehrauli or creating social content in Lodhi Colony, knowing the right locations—and having the right team—is everything. With a production partner like Smoke Studioz, you can make the most of Delhi’s stunning visuals and turn them into compelling content that works.</h5>
