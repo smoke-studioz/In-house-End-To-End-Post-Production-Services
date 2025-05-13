@@ -11,6 +11,6 @@ From colonial-era architecture to bustling cafes and urban plazas, CP offers div
 This centuries-old stepwell in the heart of Delhi is one of the most dramatic urban locations for filming. The descending steps and symmetrical stone walls make for highly cinematic visuals. It’s often used in brand videos that require mystique or cultural depth.<br>
 <h3>5. Mehrauli Archaeological Park – Nature Meets History</h3>
 Adjacent to Qutub Minar, this less-explored location provides ruins, domes, and wide open spaces all in one. It’s perfect for shooting poetic visuals, product showcases, or experimental fashion films.<br>
-<h2><li> Why Location Is Just the Start</h2></li>
 <h3>6. India Gate & Rajpath – Iconic Frames for National Pride</h3>
 Need to inject patriotism or institutional grandeur into your video? India Gate offers one of the most recognized visuals in the country. Great for NGO films, political content, or corporate profiles with a national message.<br>
+<h2><li>	Why Location Is Just the Start</h2></li>
